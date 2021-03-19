@@ -1,2 +1,2 @@
 # OybabTuz-Font
-OybabTuz Font
+OybabTuz Font for free.
